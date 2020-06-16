@@ -1,0 +1,2 @@
+# Dating-App
+Dating apps have been around for more than a decade now. Dating culture, however, continues to expand slowly and steadily and the dating app market keeps expanding similarly. The major players in the dating app market are starting to go stale. There is always space for a newer dating app and ‘fresh’ dating apps continue to pop up and steal the show. There are a lot of opportunities if you’re looking to create your very own dating app.
